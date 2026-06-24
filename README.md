@@ -1,0 +1,1 @@
+O cabelo é uma estrutura de queratina que nasce nos folículos pilosos e possui funções de proteção e isolamento térmico. Ele cresce em média 1 cm ao mês, e é composto por três camadas principais: a cutícula, o córtex e a medula, que determinam o aspecto, a força e a saúde dos fios
